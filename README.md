@@ -1,4 +1,4 @@
-# Hey, me chamo Natãn Santana ✌🏾
+# Hey, me chamo Swan Santana ✌🏾
 ## Inicialmente devo dizer que não crio inimizades ou rixas por linguagens que não costumo usar, o que importa para mim é solucionar problemas. 💥
 <img width="auto" src="https://media.giphy.com/media/l0HlUNj5BRuYDLxFm/giphy.gif"> <br/>
 <br/> 🐘 &nbsp; Atualmente estudo PHP e futuramente serei um FULL-STACK. <br/>
